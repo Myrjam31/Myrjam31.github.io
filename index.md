@@ -12,3 +12,5 @@ die Zusammenarbeit mit ihren Kollegen vor Ort, zunächst als gewöhnungsbedürft
 * mangelnder Bindungswille
 * Löst alle Fälle mit Elan
 
+Wie Sophie Hass sagt:
+> Da freut er sich wie ein Schnitzel.
