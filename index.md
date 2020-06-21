@@ -14,3 +14,5 @@ die Zusammenarbeit mit ihren Kollegen vor Ort, zunächst als gewöhnungsbedürft
 
 Wie Sophie Hass sagt:
 > Da freut er sich wie ein Schnitzel.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/2/23/Settermin_-Mord_mit_Aussicht-_am_13-Juni_2014_in_Neunkirchen_by_Olaf_Kosinsky--51.jpg"/>
